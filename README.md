@@ -51,3 +51,4 @@ teri maa ka bharosa teri bahan ki choodiya tere baap ka london mein hai bijnas
 agar mujhko na milti ye raat teri duniya mein na hoti aukat meri mere sapno ki raani kab aegi tu 
 aai rut mastani chali aegi tu beeti jae zindegani kab aegi tu chali aa tu chali aa
 
+hello how are u
