@@ -36,3 +36,18 @@ aslkdfhjalsdhflasjdfl
 asdfl;kjasdl;fkjalk;sdjflk;asdjf
 as;ldfja;skldjf;laksdjf;lkasdjfkl;asjdfkljlsdjf
 
+
+solution 5 asdlkjfladsjflkasdflkjasldkfj;asdjf;
+asdklfaskdhf;lkadsjfl;asdj
+a;lsdf;lksadhf;kladsh;fil;
+asdlklfhaslkjdfkads
+
+tst6b nlitiwehtoih4pthndskngp34
+gerg4oitho94ht
+ffgjyoiu4hto9
+
+
+teri maa ka bharosa teri bahan ki choodiya tere baap ka london mein hai bijnas
+agar mujhko na milti ye raat teri duniya mein na hoti aukat meri mere sapno ki raani kab aegi tu 
+aai rut mastani chali aegi tu beeti jae zindegani kab aegi tu chali aa tu chali aa
+
