@@ -18,3 +18,9 @@ as;ldfhajlsdhfkljasdfkl;hasdlk;falk;sdhglk;ashdlk;gjaslkdjglsnadg
 asd;klfhasdlkfhjashdg
 sdlfhasdlkfjhasdilf
 asd;flhalksdfh
+
+Solution 3 to problem 3
+asdfkjashdjfkhasddjkfhajskdhfkjasdhfjasdfasdlghalsjdhg
+asdfhasdkljfhkasjdhfasdd
+asdklfjhasdkjlfhaksdf
+asdfjklhasdkjfh
